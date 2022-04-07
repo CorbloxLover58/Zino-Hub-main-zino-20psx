@@ -1,1 +1,1 @@
-# Zino-Hub-main-zino-20psx
+This dupe script can get you banned. USE IT AT YOUR OWN RISK!!!
